@@ -1,2 +1,5 @@
-# banana-kong-2-cheats-unlimited-bananas-Hacks-hearts
-Banana Kong 2 Cheats unlimited bananas and hearts Hacks coins unblocked
+# Banana Kong 2 Cheats unlimited bananas and hearts Hacks coins unblocked
+
+Banana Kong 2 Cheats unlimited bananas and hearts Hacks coins unblocked - Although it may take some time to get used to the so-called random level design, another important aspect of game play that needs to be familiar with is the objects that form part of the privileges and challenges provided by the level. In addition to the banana avalanche that will haunt you until the end of the virtual world in Banana Kong 2, there are still some obstacles in front of the checkpoint that you need to pay attention to. The previous random level generation seems to be an interesting but challenging function, which can almost ensure that no two runs are the same, and the chance for anyone to remember the stage layout seems to be decreasing. However, although randomness is included in your regular running, repeated attempts will sooner or later make you familiar with what you can expect, even from a random starting point.
+
+[Do it](https://fengmod.top/banana-kong-2/)
